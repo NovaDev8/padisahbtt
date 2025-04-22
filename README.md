@@ -11,6 +11,6 @@
 
 ---
 
-🎯 **GitHub üzerinden bizi takip etmeyi unutmayın! `padişahbt` adına özel güncellemeleri burada yayınlıyoruz.**
+🎯 **GitHub üzerinden bizi takip etmeyi unutmayın! `padişahbet` adına özel güncellemeleri burada yayınlıyoruz.**
 
-© 2025 Padişahbt. Tüm Hakları Saklıdır.
+© 2025 Padişahbet. Tüm Hakları Saklıdır.
