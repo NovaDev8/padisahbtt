@@ -1,4 +1,4 @@
-## 📌 Güncel Adresimiz
+## 📌 Padişahbet
 
 <p align="center">
   <img src="https://bonuslarone.wordpress.com/wp-content/uploads/2025/01/basliksiz-3.png" alt="Padishbet Güncel Adres" width="300"/>
